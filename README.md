@@ -59,7 +59,7 @@ I started Inkreo because I was tired of juggling writing tools and research tabs
 **Status**  
 > In private beta—join our WhatsApp channel for early access.
 
-[Join Beta Waitlist](#contact)
+[Join Beta Waitlist](https://whatsapp.com/channel/0029Vb5gqTw0rGiH9t4xoH31)
 
 ---
 
@@ -76,7 +76,7 @@ I cofounded Membo.club to create a focused, joy-driven social platform. As Backe
 - Quick reactions, reposts, and saves  
 - Clean, intuitive UI
 
-> _Ready for your daily dose of laughter? Membo.club is growing fast—stay tuned for updates._
+> _Ready for your daily dose of laughter? Membo.club is growing fast— [Join Membo.club](https://membo.club)._
 
 ---
 
